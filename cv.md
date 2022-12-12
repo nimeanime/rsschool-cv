@@ -36,7 +36,7 @@ August 2018 - December 2020 | Poland, Krakow
 **M.Sc. Faculty of Management**
 October 2012 - July 2014 | GPA: 4,63 out of 5
 
-### Lviv Polytechnic National University
+### Lviv Polytechnic University
 
 **M.Sc. Institute of Economics and Management. Department of Finance.**
 September 2008 - May 2013 | Lviv, Ukraine
