@@ -21,7 +21,7 @@ January 2021 - up to now | Poland, Krakow
 
 ### Treasury Analyst, Motorola Solutions Systems Polska
 
-August 2018 - December 2020 | Poland, Krakow
+June 2018 - December 2020 | Poland, Krakow
 
 * Cash Management activities: cash position and investments/redemptions (MM funds), reporting on a daily/ weekly/ monthly basis.
 * Forecasting of multi-currency global cash pool and other cash accounts to ensure cash is available, cash debt reporting.
